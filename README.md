@@ -1,4 +1,4 @@
-# possimpible
+#  Privacy Policy for Possimpible
 
 Privacy Policy for Possimpible
 Effective date: July 15, 2026
